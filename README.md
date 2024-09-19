@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @1sa3elly
+- 👀 I’m interested- in focusing more and learning different codes
+- 🌱 I’m currently learning- how to program games
+- 💞️ I’m looking to collaborate on- I want to help with my health, as it takes a while to program them
+- 📫 How to reach me- via my email isabelly.balbino@escola.pr.gov.br
+- 😄 Pronouns: ...
+- ⚡ Fun fact: I know almost nothing about projects, but I try
